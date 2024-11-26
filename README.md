@@ -6,8 +6,9 @@
 
 -->
 
+# Sobre mi ;) 
 
-Sobre mi ;) 
+
 
 ## 🌱 Estudiante Ingenieria Agricola
 
