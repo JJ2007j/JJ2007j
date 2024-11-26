@@ -11,7 +11,7 @@ Sobre mi ;)
 
 ## 🌱 Estudiante Ingenieria Agricola
 
- ##💻 Aprendiendo a Programar :0
+ ## 💻 Aprendiendo a Programar :0
 
 
 ## 🫴 Mis metas son convertirme en Ingeniero Civil-Agricola
