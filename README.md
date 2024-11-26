@@ -5,12 +5,7 @@
 
 Sobre mi ;) :
 
-- 
+
 - 🌱 Estudiante ing Agricola
-- 
-- 
-- 
-- 
--
-- 
+
 -->
