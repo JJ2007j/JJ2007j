@@ -10,7 +10,11 @@
 Sobre mi ;) 
 
 🌱 Estudiante Ingenieria Agricola
+
 💻 Aprendiendo a Programar :0
-🫴 Mis metas son convertirme en Ingeniero Civil-Agricola 
+
+
+🫴 Mis metas son convertirme en Ingeniero Civil-Agricola
+
 ![ElonMuskFunnyElonMuskGIF](https://github.com/user-attachments/assets/82e6962c-2c34-44f5-b8e5-12eea470300f)
 
